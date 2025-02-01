@@ -5,4 +5,4 @@
 - 👯 I’m thrilled to be starting a summer internship this year!
 - 📫 You can reach me at: via email dgc24@mails.tsinghua.edu.cn
 - 😄 Pronouns: he/him
-- 💡 Motto: "Balance exploration and exploitation."
+- 💡 Motto: (not filled)
